@@ -1,1 +1,1 @@
-# github-readme-badges
+## Github readme profile is very popular nowadays. There are various types of statistics and badges can be used to uphold someone's skills and projects. It is very simple and easy to create a stunning readme profile. Click here [https://github.com/ajannat/ajannat] to see mine.
